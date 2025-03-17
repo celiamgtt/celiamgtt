@@ -6,6 +6,3 @@ Je suis Célia Margotteau aka Lya Mgtt, UX & UI Designer, je crée des expérien
 Around the web: 
 
 ☞ [Portfolio](https://www.celiamargotteau.com/)
-
-✉ [Email me](mailto:celia.margotteau@gmail.com)
- 
