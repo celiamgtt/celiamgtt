@@ -5,6 +5,6 @@ Hi ! I'm Célia aka Lya Mgtt, **UX UI Designer & Illustrator**, I'm creating use
 
 Around the web: 
 
-☞ [My Portfolio](https://www.celiamargotteau.com/)
-☞ [My Games on Itch](https://lyamgtt.itch.io)
+☞ [My Portfolio](https://www.celiamargotteau.com/)  
+☞ [My Games on Itch](https://lyamgtt.itch.io)  
 ☞ [My illustrations on Instagram](https://www.instagram.com/lya.mgtt)
